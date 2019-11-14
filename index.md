@@ -1,2 +1,2 @@
 <h1>Pobierz Minecraft<h1>
-<a href=https://anonymousfiles.io/f/Minecraft_ZE8hWKq.zip</a>
+<a href=https://anonymousfiles.io/f/Minecraft_ZE8hWKq.zip>NACISNIJ</a>
